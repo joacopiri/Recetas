@@ -19,4 +19,4 @@ PASO A PASO:
 
  Sumar el harina 0000 tamizada en dos partes e integrar todo como se ve en el video. Es importante batir fuerte antes de pasar el brownie de chocolate al molde.
 
- Colocar en una placa y cocinar al horno fuerte (200-220°) por 20 minutos. 
+ Colocar en una placa y cocinar al horno fuerte (200-220°) por 20 minutos.
