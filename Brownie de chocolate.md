@@ -1,22 +1,16 @@
-Brownie de chocolate con nueces.
+Brownie sin azucar.
 
 INGREDIENTES:
- 100gr de manteca
- 150gr de chocolate
+ 100g. de manteca
+ 1 taza de cacao amargo
+ 100g. harina 0000
  2 huevos
- 1 taza de azúcar
- 1/2 taza de nueces picadas
- 100gr de harina
+ 40g. nueces
 
 PASO A PASO:
- Colocar la manteca y el chocolate picados en una sartén, y llevarlos a fuego bien bajo. Lo tapamos y vamos a dejarlo por unos 5 minutos sin tocar.
-
- Ahora retirar del fuego y revolver los ingredientes hasta que esté todo derretido e integrado.
-
- A parte vamos a batir los 2 huevos con el azúcar hasta que queden bien blancos, esto es clave para que el brownie casero quede bien húmedo.
-
- Agregar el chocolate derretido y batir hasta que esté integrado. Sumar las nueces en pedazos grandes o como más les guste.
-
- Sumar el harina 0000 tamizada en dos partes e integrar todo como se ve en el video. Es importante batir fuerte antes de pasar el brownie de chocolate al molde.
-
- Colocar en una placa y cocinar al horno fuerte (200-220°) por 20 minutos.
+ Colocar en un bol la manteca y el cacao amargo. Llevar unos 30 segundos al microondas o hasta que se derrita bien la manteca. Mezclar con mucho cuidado hasta que se integre en una pasta oscura.
+ En otro bol colocar los 2 huevos y agregar el edulcorante. En este aso se usaron 4 sobrecitos, pero es a gusto! Batir hasta que la mezcla se espume (como no tiene azúcar hay que batir un largo rato).
+ Cuando esté espumado, ir agregando de a poco la pasta de manteca y cacao. Tarda unos instantes en integrarse por la consistencia densa, pero continuar batiendo hasta que esté todo integrado.
+ Agregar el harina de a partes, y seguir batiendo. Cuando esté casi toda la harina incorporada, agregar chorritos de leche de a poco para ayudar a batir. La preparación tiene que quedar más bien espesa pero uniforme.
+ Partir las nueces con las manos y agregarlas a la mezcla con una espátula.
+ Enmantecar un molde y colocar la preparación. Llevar al horno a 180º durante unos 20 minutos. Cortar, dejar enfriar y servir!
